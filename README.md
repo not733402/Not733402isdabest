@@ -17,4 +17,6 @@ my discord server https://discord.com/invite/vBRunzPw5e
 while in the prosses of that you should not leave the server 
 or else you wont get verified if the owner is online just send the owner a message 
 to get verified 
+
+
 **DO NOT FOLLOW THESE STEPS IF YOU ALREDY HAVE A PHONE NUMBER**
