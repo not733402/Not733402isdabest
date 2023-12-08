@@ -4,7 +4,10 @@
 
 NOT733402
 
+
+my yt channel
 https://www.youtube.com/@IamthebestGDplayerever
+
 
 my discord server https://discord.com/invite/vBRunzPw5e
                   click on verify to get access make sure to have a phone number 
