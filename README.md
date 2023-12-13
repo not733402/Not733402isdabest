@@ -25,6 +25,6 @@ to get verified
 **DO NOT FOLLOW THESE STEPS IF YOU ALREDY HAVE A PHONE NUMBER**
 
 
-school unblocks 
+**Proxy N3T** 
 https://docs.google.com/document/d/13m3i1zee4s1X-qU42QwOZ6FYcJPvVheI87Fv7OapyP8/edit?usp=sharing
-
+proxy document 
