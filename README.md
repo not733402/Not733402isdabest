@@ -6,11 +6,14 @@ NOT733402
 
 
 my yt channel
-https://www.youtube.com/@IamthebestGDplayerever
+# https://www.youtube.com/@IamthebestGDplayerever
 
-my best video so far https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m
+my best video so far
+# https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m
 
-my discord server https://discord.com/invite/vBRunzPw5e
+my discord server 
+# https://discord.com/invite/vBRunzPw5e
+                 
                   click on verify to get access make sure to have a phone number 
 
  **note if you dont have a phone number follow these steps to get verified only in the discord server**
@@ -27,5 +30,5 @@ to get verified
 
 
 **Proxy N3T** 
-https://docs.google.com/document/d/13m3i1zee4s1X-qU42QwOZ6FYcJPvVheI87Fv7OapyP8/edit?usp=sharing
+# https://docs.google.com/document/d/13m3i1zee4s1X-qU42QwOZ6FYcJPvVheI87Fv7OapyP8/edit?usp=sharing
 proxy document 
