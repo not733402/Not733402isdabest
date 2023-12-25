@@ -12,7 +12,7 @@ my best video so far
 # https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m
 
 my discord server 
-# https://discord.com/invite/vBRunzPw5e
+# https://discord.gg/DceHkEkzqD
                  
                   click on verify to get access make sure to have a phone number 
 
