@@ -9,7 +9,7 @@ my yt channel
 # ```https://www.youtube.com/@IamthebestGDplayerever```
 
 my best video so far
-# https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m
+# ```https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m```
 
 my discord server 
 # ```https://discord.gg/DceHkEkzqD```
@@ -23,6 +23,6 @@ proxy document
 
 
 my discord bot
-**```https://docs.google.com/document/d/1y0zhQp5nlwIvYknfDPUc58y_fMDWY3v5oIw7Qkr99MY/edit?usp=sharing```**
+# ```https://docs.google.com/document/d/1y0zhQp5nlwIvYknfDPUc58y_fMDWY3v5oIw7Qkr99MY/edit?usp=sharing```
 
 
