@@ -22,6 +22,7 @@ my discord server
 proxy document 
 
 
+my discord bot
 **https://docs.google.com/document/d/1y0zhQp5nlwIvYknfDPUc58y_fMDWY3v5oIw7Qkr99MY/edit?usp=sharing**
 
-add the discord bot
+
