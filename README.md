@@ -10,7 +10,7 @@ my yt channel
 https://www.youtube.com/@IamthebestGDplayerever
 
 my best video so far
-https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m #
+https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m 
 
 my discord server 
 
