@@ -13,12 +13,17 @@ my best video so far
 https://youtu.be/2R6kZTraheI?si=oNAu-F5EW87DHL3m #
 
 my discord server 
+
+community server
 https://discord.gg/DceHkEkzqD
+
+geometry dash server
+https://discord.gg/ZX2wjnGPT2
+
+apeal server
+https://discord.gg/6zcW9uP8Zt
                  
-                  click on verify to get access 
-
-
-**Proxy NETWORKS** 
+**Proxy NETWORKS** for school 
 https://docs.google.com/document/d/13m3i1zee4s1X-qU42QwOZ6FYcJPvVheI87Fv7OapyP8/edit?usp=sharing
 proxy document 
 
