@@ -21,7 +21,6 @@ geometry dash server
 https://discord.gg/ZX2wjnGPT2
 
 apeal server
-
 https://discord.gg/6zcW9uP8Zt
                  
 **Proxy NETWORKS** for school 
